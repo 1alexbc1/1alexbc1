@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @1alexbc1
 - 👀 I’m interested in ...mining
 - 🌱 I’m currently learning ...crypto
-- 💞️ I’m looking to collaborate on ...porno
-- 📫 How to reach me .wathsapp..
-- 😄 Pronouns: ..no.
+- 💞️ I’m looking to collaborate on ...btc 
+- 📫 How to reach me .GitHub
+- 😄 Pronouns: ..me.
 - ⚡ Fun fact: ...100
 
 
