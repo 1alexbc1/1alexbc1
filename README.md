@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on ...porno
 - 📫 How to reach me .wathsapp..
 - 😄 Pronouns: ..no.
-- ⚡ Fun fact: ...10000
+- ⚡ Fun fact: ...100
+
 
 <!---
 1alexbc1/1alexbc1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
