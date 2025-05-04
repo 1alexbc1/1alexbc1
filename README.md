@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @1alexbc1
+- 👋 Hi, I’m @princealex
 - 👀 I’m interested in ...mining
 - 🌱 I’m currently learning ...crypto
-- 💞️ I’m looking to collaborate on ...porno
+- 💞️ I’m looking for leonor
 - 📫 How to reach me .wathsapp..
 - 😄 Pronouns: ..no.
 - ⚡ Fun fact: ...100
